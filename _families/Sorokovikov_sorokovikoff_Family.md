@@ -95,7 +95,7 @@ Children:
 > Andy Anderson Feb. 11, 1967; d. Jan. 19, 2014 in Anchorage; buried in
 > Seldovia City Cemetery
 > 
-> Gladys **Wilson** Yuth, married Harold Yuth
+> [**Gladys **Wilson** Yuth**](_people/Yuth_Gladys_Wilson.md): b. July 17, 1944 in Seldovia; married Harold Yuth, d. January 23, 2023, Seldovia. 
 > 
 > Helen **Wilson** Quijance, married Alfred Quijance
 > 
