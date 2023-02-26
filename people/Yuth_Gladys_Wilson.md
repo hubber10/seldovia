@@ -16,5 +16,4 @@ She was married September 30, 1961, to **Harry W. Yuth** who passed away in 1997
 
 Gladys had a strong faith in her Lord and Savior.  She was a loving, caring, amazing woman.  She had a heart of gold, always there for her family and friends through good and bad; she knew just exactly what to say and how to help us all.  Always with a smile on her face and positive about life, she will be greatly missed.
 
-“Do not be anxious about anything, but in every situation, by prayer and petition, with thanksgiving, present your requests to God. And the peace of God, which transcends all understanding, will guard your hearts and your minds in Christ Jesus.” Philippians 4:6-7
 
