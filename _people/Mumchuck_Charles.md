@@ -2,9 +2,9 @@
 last_name: Mumchuck
 first_name: Charles L.
 aka: 
-birth_date: January 4, 1974
+birth_date: 1974-01-04
 birth_location: Anchorage, Alaska
-death_date: January, 1 2022
+death_date: 2022-01-01
 death_location: Anchorage, Alaska
 cemetery: Seldovia City Cemetery
 source_file: Cemetery Directory

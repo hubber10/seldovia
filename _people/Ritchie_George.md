@@ -1,15 +1,14 @@
 ---
 last_name: Ritchie
 first_name: George
-birth_date: August 1904
+birth_date: 1904-08
 birth_location: Kachemak Bay, Alaska
-death_date: December 1952
+death_date: 1952-12
 death_location: Seldovia, Alaska
 cemetery: Seldovia City Cemetery
 cemetery_plot: 14
 source_file: Cemetery Directory
 ---
-# George Ritchie
 
 **George Ritchie** is first listed in Alaska in 1910
 census records where he is living on Yukon Island, with his parents, [**U.S. Ritchie**](./Ritchie_Ulyses_Grant.md) and Annie and his brothers, Sam and Jim.

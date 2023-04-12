@@ -1,7 +1,7 @@
 ---
 last_name: Olsen
 first_name: Hilmar
-birth_date: February 14, 1879
+birth_date: 1879-02-14
 birth_location: Namsos, Norway
 death_date: 1959-08-11
 death_location: Seldovia, Alaska

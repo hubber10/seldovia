@@ -5,9 +5,8 @@ birth_date: 1939-11-04
 birth_location: Okanogan, Washington
 death_date: 2021-07-16
 death_location: Seldovia, Alaska
-cemetery_location: Seldovia City Cemetery
-cemetery_plot_#:375
-
+cemetery: Seldovia City Cemetery
+cemetery_plot: 375
 ---
 
 **GORDON ELGIN GILES**, son of Fleming and Helen Lazure Giles, was born in Okanogan, Washington on November 4, 1939. The family moved to California and Gordon graduated from high school in Las Gatos, California.

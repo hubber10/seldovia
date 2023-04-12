@@ -1,13 +1,13 @@
 ---
 last_name: "Carlough"
 first_name: "Alyce"
-maiden_name: "OLLESTAD
+maiden_name: "OLLESTAD"
 source_file: "James Howard Carlough"
 birth_date: 1920-05-16
 birth_location: Seldovia, Alaska
 death_date: 2004-10-21
 death_location: Edmonds, Washington
-cemetery_plot: 
+cemetery_plot: 193
 ---
 
 **ALYCE *OLLESTAD* CARLOUGH** was born on May 16, 1920, in Seldovia, Alaska.
