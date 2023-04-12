@@ -9,7 +9,7 @@ birth_location: Port Graham, Alaska
 death_date: 1956
 death_location: Seldovia, Alaska
 cemetery: Seldovia City Cemetery
-cemetery_plot: 1253
+cemetery_plot: 1252
 ---
 
 **ELSIE CATHERINE *CARLOUGH* MARRS** was born on October 19, 1924, in Port
