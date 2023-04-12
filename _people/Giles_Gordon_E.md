@@ -6,7 +6,7 @@ birth_location: Okanogan, Washington
 death_date: 2021-07-16
 death_location: Seldovia, Alaska
 cemetery_location: Seldovia City Cemetery
-cemetery_plot_#:
+cemetery_plot_#:375
 
 ---
 
