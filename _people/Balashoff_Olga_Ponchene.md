@@ -4,7 +4,7 @@ maiden_name: Rysev
 first_name: Olga 
 maiden_name: Rysev/PONCHENE
 birth_date: 1883
-birth_location: Alaska
+birth_location: Kodiak Island, Alaska
 death_date: 1962-05-04
 death_location: Seldovia, Alaska
 cemetery: Seldovia City Cemetery
