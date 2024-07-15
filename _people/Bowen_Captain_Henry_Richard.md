@@ -32,7 +32,7 @@ children to school" *From Humboldt to Kodiak* by Fred Roscoe, 1992*
 Henry met Barbara NAUMOFF Smith in Kodiak; she had been married to William C. Smith and had two children Julian and Ann. After Smith died, Julian and Ann went to live with their relatives in California.
 
 Children of Henry R. Bowen and Barbara Naumoff are:
-•	[**Rufas Henry Bowen**](../_people/Bowen_Rufas.md) born 22 October 1879, Kodiak. Died 5 September 1954, Seldovia.
+•	[**Rufas Henry Bowen**](./Bowen_Rufus_Jr.md) born 22 October 1879, Kodiak. Died 5 September 1954, Seldovia.
 •	Florence, born 1 April 1883, Kodiak. Died 24 March 1946 in Seattle, Washington.
 •	Lydia, born 1 June 1885, died 9 January 1887.
 •	Elizabeth (Lizzy), born 27 October 1886, Kodiak. Died 25 July 1923, Anchorage.
