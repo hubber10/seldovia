@@ -12,8 +12,8 @@ family: Bowen
 
 ---
 
-**HENRY RICHARD BOWEN**, son of David [Bowen](../_families/Bowen_Family.md), was born in Massachusetts in
-1853. He came to Alaska as a sea captain in the late 1800s and brought a load of salt and barrels for the canneries in Kodiak.  It was said that he was paid in shares in the Alaska Commercial Company.  In 1880 a salting station of the Western Fur and Trading Company of San Francisco, operated at Karluk with Captain Bowen of Saint Paul (Kodiak) as the local superintendent. They also maintained a saltery at Kasilof.
+**HENRY RICHARD BOWEN**, son of David [Bowen](../_families/Bowen_Family.md), was born in Gloucester, Massachusetts in
+1853. He came to Alaska as a sea captain in the late 1800s and brought a load of salt and barrels for the canneries in Kodiak.  It was said that he was paid in shares in the Alaska Commercial Company.  In 1880 a salting station of the Western Fur and Trading Company of San Francisco, operated at Karluk with Captain Bowen of Saint Paul (Kodiak) as the local superintendent. They also maintained a saltery at Kasilof. 
 
 At one time he was in charge of all the Northern Commercial
 Company stores from Yakatat to Dutch Harbor. *Bowen believed that the
@@ -23,18 +23,16 @@ establish themselves most readily in a lucrative business on Kodiak
 Island…". Bowen returned to Gloucester several times after moving to
 Alaska, but no amount of persuasion on his part could induce any of the
 New England fishermen to move to Alaska. He married Vavara (Barbara)
-Annie NAUMOFF in Kodiak and had 9 children: Rufus, Florence, Lydia,
-Elizabeth, Harriet, Fred, Barbara, Ollie and David. Mrs. Bowen was "the
+Annie NAUMOFF in Kodiak and had 9 children.  Mrs. Bowen was "the
 Russian woman who showed Mother how to make those wonderful fish pies
 the Russians called"perog", and the Bowens were anxious for the
 schoolroom in St. Paul to be finished so they too could send their
-children to school, Rufus, Ollie and David had gone to school in
-Kodiak." *From Humboldt to Kodiak* by Fred Roscoe, 1992*
+children to school" *From Humboldt to Kodiak* by Fred Roscoe, 1992*
 
-Captain Henry Richard Bowen married Barbara NAUMOFF Smith.
+Henry met Barbara NAUMOFF Smith in Kodiak; she had been married to William C. Smith and had two children Julian and Ann. After Smith died, Julian and Ann went to live with their relatives in California.
 
 Children of Henry R. Bowen and Barbara Naumoff are:
-•	Rufas Henry, born 22 October 1879, Kodiak. Died 5 September 1954, Seldovia.
+•	[**Rufas Henry Bowen**](../_people/Bowen_Rufas.md) born 22 October 1879, Kodiak. Died 5 September 1954, Seldovia.
 •	Florence, born 1 April 1883, Kodiak. Died 24 March 1946 in Seattle, Washington.
 •	Lydia, born 1 June 1885, died 9 January 1887.
 •	Elizabeth (Lizzy), born 27 October 1886, Kodiak. Died 25 July 1923, Anchorage.
@@ -44,19 +42,19 @@ Children of Henry R. Bowen and Barbara Naumoff are:
 •	David. Not much is know about him, only that he was an archeologist and was buried in Illiamna Lake, Alaska and that his family came to Illiamna Lake, dug up his remains and took them to Los Angeles for burial.
 •	Ollie, mentioned in the book, *From Humboldt to Kodiak*.
 
-Henry R. Bowen died in December 1895, at sea aboard the schooner ***Seventy-Six***:
+As captain of the fur-trading schooner *Pauline Collins*, he escaped from the ship when it broke on the rocks in 1881, but drowned 14 years later when the ill-fated *Seventy-Six* disappeared with all hands between Kodiak and Kayak Island.
 
-The 38 ton 60 foot schooner ***Seventy-Six*** departed Woody Island
+The 38 ton 60 foot schooner *Seventy-Six* departed Woody Island
 December 11, 1895 with six crewmen and one passenger aboard. It was
 bound for Kayak Island, continuing on to Prince William Sound on a
 trading voyage. The vessel disappeared with all hands. The
-***Seventy-Six*** was owned by the North American Commercial Company
+*Seventy-Six* was owned by the North American Commercial Company
 whose principal station was at Woody Island. Weather was fair when the
 vessel departed the island but deteriorated into a terrific northerly
-gale soon after. Friends of the ***Seventy-Six*** crew reported their
+gale soon after. Friends of the *Seventy-Six* crew reported their
 concern that the vessel had no extra sails and that those they were
 using were not in good condition and may not be able to withstand a
-storm. Lost with the ***Seventy-Six*** were Captain Henry R. Bowen (45)
+storm. Lost with the *Seventy-Six* were Captain Henry R. Bowen (45)
 of Massachusetts and North American Commercial Company’s foreman who was
 in charge of the expedition, and six others. Captain Bowen left behind a
 wife and 9 children. The steamer Dora reported that wreckage from the
