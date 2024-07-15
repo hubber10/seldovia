@@ -31,6 +31,21 @@ schoolroom in St. Paul to be finished so they too could send their
 children to school, Rufus, Ollie and David had gone to school in
 Kodiak." *From Humboldt to Kodiak* by Fred Roscoe, 1992*
 
+Captain Henry Richard Bowen married Barbara NAUMOFF Smith.
+
+Children of Henry R. Bowen and Barbara Naumoff are:
+•	Rufas Henry, born 22 October 1879, Kodiak. Died 5 September 1954, Seldovia.
+•	Florence, born 1 April 1883, Kodiak. Died 24 March 1946 in Seattle, Washington.
+•	Lydia, born 1 June 1885, died 9 January 1887.
+•	Elizabeth (Lizzy), born 27 October 1886, Kodiak. Died 25 July 1923, Anchorage.
+•	Harriett Susanna, born 24 September 1887, Kodiak. Died 25 July 1923, Seward. Buried in Seldovia, Alaska. Died of chronic nephritis.
+•	Frederick, born 3 October 1891, Kodiak. Drowned off the Seldovia dock in 1948.
+•	Barbara, born 31 March 1893, Kodiak. Died 15 December 1948, Seattle, Washington. She had breast cancer.
+•	David. Not much is know about him, only that he was an archeologist and was buried in Illiamna Lake, Alaska and that his family came to Illiamna Lake, dug up his remains and took them to Los Angeles for burial.
+•	Ollie, mentioned in the book, *From Humboldt to Kodiak*.
+
+Henry R. Bowen died in December 1895, at sea aboard the schooner ***Seventy-Six***:
+
 The 38 ton 60 foot schooner ***Seventy-Six*** departed Woody Island
 December 11, 1895 with six crewmen and one passenger aboard. It was
 bound for Kayak Island, continuing on to Prince William Sound on a
