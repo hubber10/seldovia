@@ -13,5 +13,5 @@ source_file: Cemetery Directory
 
 He married Florence Bowen, of the Rufus Bowen family from Kodiak. She had been married in Kodiak but her husband and child died in an epidemic in Afognak. And then she  married Charles Richard Olssen and they had 5 children. After he died, she married Carl Hammelbacher. 
 
-He died 1938 in Seldovia, Alaska and is buried in the Seldovia City Cemetery in Plot #92. Florence moved to Seattle where she spent the rest of her life
+He died 1938 in Seldovia, Alaska and is buried in the Seldovia City Cemetery in Plot #92. Florence moved to Seattle where she spent the rest of her life.
 
