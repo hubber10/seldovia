@@ -15,10 +15,9 @@ cemetery_plot: 43
 after the Novarupta eruption in 1912. He built a cabin near the current harbor and grazed horses in a pasture located where
 the current SVT building stands. Later he lived in a cabin on the edge of the Russian Orthodox Church Cemetery.
 
-His first wife died while very young and later Rufus married Solominniia Chebotnoi, "Sally" and raised a lare family in Seldovia. 
+***From Mae Fox Sharp***: 
+"The Russian Orthodox records say that his name was Smith Bowen and wasn’t changed till later years from Smith. Rufas I believe was the oldest child of Henry and Barbara, but a David and Ollie were mentioned in the book *From Humboldt to Kodiak* by Fred Roscoe.
 
-From Mae Fox Sharp: 
-"The Russian Orthodox records say that his name was Smith Bowen and wasn’t changed till later years from Smith. Rufas I believe was the oldest child of Henry and Barbara, but a David and Ollie were mentioned in the book From Humboldt to Kodiak by Fred Roscoe.
 Rufas was a quiet gentleman. We all loved him and went to his house whenever we could. He had a tiny cabin, like a doll house. It was near the graveyard and his sister Florence’s house. The beach was his front yard. When he first settled in Seldovia he owned that property where Mr. Morris built his big house and store. He built a log house and raised his family there. He had horses that he and my grandfather Andy Johnson used to haul logs to build their houses. One of his horses was named Kayuse, which didn’t like to stay at home. He liked the run of the town.
 
 In 1912-13, he with brother-in-law Charlie Olssen and Andy Johnson built their houses. Rufas and his brother-in-law James Ward were the only licensed steamboat pilots in Alaska at that time. Rufas worked on many ships, one being the Tyonek. He was also an interpreter for the trading ships that traveled all over the world. He spoke Russian, Aleut, and English.
