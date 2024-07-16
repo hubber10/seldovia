@@ -6,7 +6,7 @@ birth_location: Queens, New York
 death_date: 2023-01-19
 death_location: Hopewell, Virginia
 cemetery: Seldovia City Cemetery
-cemetery_plot: 5-348
+cemetery_plot: 348
 ---
 
 **JOHN CARLUCCIO FELIX** was born in Rockaway, Queens, New York on June 27, 1929, when his brother Victor Vincent Carluccio was 2 years old.  His parents, Daniel and Rose CARELLO Carluccio had both emigrated from Italy as children and married in New York. 
