@@ -3,7 +3,7 @@ last_name: Polson
 first_name: Marilyn P.
 maiden_name: DE FOI
 aka: Mary
-birth_date:1923
+birth_date: 1923
 birth_location: Seattle, Washington
 death_date: 1963-06-05
 death_location: Seldovia, Alaska
