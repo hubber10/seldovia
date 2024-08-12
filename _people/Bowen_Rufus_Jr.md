@@ -1,7 +1,7 @@
 ---
 full_name: "Rufus Bowen"
 last_name: "Bowen"
-first_name: "Rufus"
+first_name: "Rufas"
 birth_date: 1879-10-22
 birth_location: "Kodiak, Alaska "
 death_date: 1953-10-05
