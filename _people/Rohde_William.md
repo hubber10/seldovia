@@ -17,7 +17,7 @@ He married, before 1900, [**Paraskovia Dobrovolsky**](./Rohde_Paraskovia.md), th
 
 Bill and Paraskovia as well as her father all died in Seldovia.  He is buried in the Seldovia Hillside Cemetery and his wife and her father are buried in the Russian Orthodox section of the Seldovia City Cemetery that was moved there in 1967 from the lower area of town.  
 
-After Paraskovia's death, Bil married [**Barbara Naumoff**](./Naumoff_Barbara.md). 
+After Paraskovia's death, Bill married [**Barbara Naumoff**](./Naumoff_Barbara.md). 
 
 
 
