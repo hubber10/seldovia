@@ -9,7 +9,7 @@ cemetery:
 cemetery_plot:
 source_file: Cemetery Directory
 ---
-**Frederick Bowen** was born 3 October 1891 in Kodiak, Alaska to [**Captain Henry Richard Bowen**](./Bowen_Captain_Henry_Richard.md) and his wife [**Barbara Naumann**](./Naumann_Barbara.md) 
+**Frederick Bowen** was born 3 October 1891 in Kodiak, Alaska to [**Captain Henry Richard Bowen**](./Bowen_Captain_Henry_Richard.md) and his wife [**Barbara Naumoff**](./Naumoff_Barbara.md) 
 
 The family moved to Wood Island in 1893. Fred was only about four years old when his father Captain Henry R. Bowen drowned at sea near Kodiak on the boat the Seventy Six in December of 1895.
 
