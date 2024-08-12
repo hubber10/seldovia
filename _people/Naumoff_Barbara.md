@@ -8,7 +8,7 @@ death_location: Seldovia, Alaska
 cemetery_plot:
 source_file: Cemetery Directory
 ---
-**Varvara Anna NAUMOFF "Barbara"** was born to **Peter Naumoff and Ella Kandakof** 17 December 1854 in Sitka, Alaska. 
+**Varvara Anna "Barbara" NAUMOFF** was born to **Peter Naumoff and Ella Kandakof** 17 December 1854 in Sitka, Alaska. 
 
 Barbara was first married to **William Smith** in Kodiak, Alaska, 17 June 1872. They were married in the Russian Orthodox Church in Kodiak. They had two children, Julian Smith, born 10 August 1872 and Anna Smith, born 7 December 1874, both in Kodiak. William Smith died in 1885, and the children were sent to California to be raised by the Smith grandparents.
 
