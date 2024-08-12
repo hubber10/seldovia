@@ -29,7 +29,7 @@ the Russians called"perog", and the Bowens were anxious for the
 schoolroom in St. Paul to be finished so they too could send their
 children to school" *From Humboldt to Kodiak* by Fred Roscoe, 1992*
 
-Henry married Barbara NAUMOFF Smith in Kodiak; she had been married to William C. Smith and had two children Julian and Ann. After Smith died, Julian and Ann went to live with their relatives in California.
+Henry married [**Barbara NAUMOFF**](./Naumoff_Barbara.md) in Kodiak; she had been married to William C. Smith and had two children Julian and Ann. After Smith died, Julian and Ann went to live with their relatives in California.
 
 Children of Henry R. Bowen and Barbara Naumoff are:
 •	[**Rufas Henry Bowen**](./Bowen_Rufus_Jr.md) born 22 October 1879, Kodiak. Died 5 September 1954, Seldovia.
