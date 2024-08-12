@@ -23,4 +23,3 @@ of [**Katherine Fox Vinberg Kashavarov**](./Kashevarof_Katherine_F_Fox.md).
 Hattie died March 3, 1931 and Andy died July 13, 1940. They are buried beside each other in the Seldovia
 Cemetery, Plots \#36 and \#37.**
 
-**Baby Bowen** died 1937 *Seldovia City Cemetery: Plot \#70*
