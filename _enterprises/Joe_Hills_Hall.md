@@ -8,7 +8,8 @@ dates: 1927-1941
 
 [**Joe Hill**](../_people/Hill_Joe.md) came to Seldovia in the 1920s and it wasn't long after that that he established **Joe Hill's Hall**. When Prohibition ended he could legally include a bar and eventually even showed movies there. In 1940 the saloon burned to the ground in an impressive fire visible even from Homer, and later Joe rebuilt the [**Polar Bar**](./Polar Bar.md) and operated it until 1948 when he was forced to cede the property to the new owner, Frank Raby.
 
-(../JoeHills.jpg)
+
+![Joe Hill's Bar was at the end of Main Street near the entrance to the Slough.The Cannery at Schooner Beach is on the far right.](../assets/JoeHills.jpg)
 
 Here is an ad from Seward newspaper in 1927.
 
