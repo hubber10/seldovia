@@ -3,7 +3,7 @@ last_name: Galliand
 first_name: William
 birth_date: 1957-11-14
 birth_location: St. Louis, Missouri
-death_date: 2022-05-3
+death_date: 2022-05-21
 death_location: Alaska
 cemetery: Seldovia City Cemetery
 cemetery_plot: 610
