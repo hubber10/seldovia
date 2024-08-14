@@ -5,7 +5,7 @@ birth_date:  1940-07-22
 birth_location: Stavanger, Norway
 death_date: 2024-04-29
 death_location: Homer, Alaska
-cemetery_plot:
+cemetery_plot:  621
 source_file: Cemetery Directory
 ---
 **TOBBEN SPURKLAND** was born to **Torborg Vaaland and Victor Spurkland Sr.** in Stavanger, Norway, on July 22, 1940 during World War II. He grew up in Kristiansund, the son of a klippfisk (salt cod) fish processor. Tobben would enthusiastically report that they had "Fish six days a week and leftovers on Sunday."
