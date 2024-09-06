@@ -9,7 +9,7 @@ cemetery: Seldovia City Cemetery
 cemetery_plot: 348
 ---
 
-**JOHN CARLUCCIO FELIX** was born in Rockaway, Queens, New York on June 27, 1929, when his brother Victor Vincent Carluccio was 2 years old.  His parents, Daniel and Rose CARELLO Carluccio had both emigrated from Italy as children and married in New York. 
+**JOHN FELIX CARLUCCIO** was born in Rockaway, Queens, New York on June 27, 1929, when his brother Victor Vincent Carluccio was 2 years old.  His parents, Daniel and Rose CARELLO Carluccio had both emigrated from Italy as children and married in New York. 
 
 John was a salesman - an entrepreneur from an early age.  He declined his father's offer of a paid college education and went right to work honing his craft.  Several years later, realizing his mistake, he enrolled in Brooklyn College and spent the next six years goint to evening classes to earn his BS in Business.  He advanced quickly but soon found corporate life too restricting.  He went on to start his first of many different businesses.  He was a very creative businessman and loved closing deals right up to the end.  He travelled the world from Italy to Korea, always looking for the next business venture.  In the late 1980s, a trip to the 49th state forever hooked him on Alaska.  Initially he spent many weeks every summer enjoying all it had to offer, and he moved to Seldovia full-time in 2004.
 
